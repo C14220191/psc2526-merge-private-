@@ -1,0 +1,1 @@
+stop ganti ke private 
